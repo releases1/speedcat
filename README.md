@@ -1,6 +1,6 @@
 # SpeedCAT闪电猫官网地址
 
-最新地址：[speedcat.la](https://scaff01.scvipaff.com/auth/register?code=jroMeyXX)
+最新地址：[speedcat.la](https://webinv02.sc-aff.cc/auth/register?code=NvcYpDGT)
 
 ## 简介
 
